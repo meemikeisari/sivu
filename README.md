@@ -1,5 +1,5 @@
 ## Welcome to theheli.xyz
 
-You found my little corner of the internet, welcome traveler, I guess...
+You found my little corner of the internet. Welcome traveler, I guess...
 
-#### More content coming soon (tm)
+#### Content coming soon (tm)
